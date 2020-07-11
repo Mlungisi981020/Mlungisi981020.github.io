@@ -1,2 +1,2 @@
-# http://Mlungisi981020.github.io
+# https://Mlungisi981020.github.io
 Kwadlusuthe project
